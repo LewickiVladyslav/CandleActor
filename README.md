@@ -1,1 +1,1 @@
-![Custom_Node](https://github.com/user-attachments/assets/a75e53da-f325-4a4f-9b4b-c75e85a95a30)
+![Custom_Node](https://github.com/user-attachments/assets/dda294de-d551-4437-8b38-d5703eae9a5f)
